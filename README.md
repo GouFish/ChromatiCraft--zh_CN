@@ -3,3 +3,5 @@
 
 
 GitiHub上的文本可能不会再更新，因为太麻烦，emmmm所以，如果您需要汉化文件，可在我的B站空间公告处找到某盘链接
+
+https://space.bilibili.com/5909731/#/
